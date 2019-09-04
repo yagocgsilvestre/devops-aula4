@@ -1,4 +1,4 @@
 # devops-aula4
-1° Vingadores:Ultimato<br/>
-2° O Labirinto do Fauno<br/>
-3° Os 6 Ridiculos<br/>
+1° Love,Death and Robots<br/>
+2° Lúcifer<br/>
+3° Grimm<br/>
